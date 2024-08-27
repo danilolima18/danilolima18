@@ -10,3 +10,6 @@ Meu nome é Danilo Lima▪️◾⬛
 ### Você entrar em contato comigo📧
 
 danilo.lima18@escola.pr.gov.br
+
+![](https://media1.tenor.com/m/298_QMUaoNsAAAAC/dat-funny-stuff-smile.gif)
+![](https://media1.tenor.com/m/3xh5gGxw-8oAAAAC/peace-peace-out.gif)
